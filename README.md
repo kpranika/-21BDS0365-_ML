@@ -1,0 +1,1 @@
+# Trademarkia-AI---Intern-Task
